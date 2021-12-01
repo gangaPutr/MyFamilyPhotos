@@ -1,4 +1,4 @@
 # MyFamilyPhotos
 Its Collection of Family Photos in creative way.
 
-Its amazing
+Our memories in one bundle .
